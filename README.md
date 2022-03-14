@@ -1,0 +1,2 @@
+# parastesh
+معدن
